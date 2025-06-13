@@ -1,2 +1,1 @@
-# Sol-Helius-Discord-Bot
-gang
+ai slop solana copybuy/tracker 
